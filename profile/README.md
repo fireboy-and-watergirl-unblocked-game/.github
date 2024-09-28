@@ -1,4 +1,4 @@
-Fireboy and Watergirl Unblocked: Get Started Today
+## Fireboy and Watergirl Unblocked: Get Started Today
 
 Fireboy and Watergirl Unblocked is an exciting cooperative puzzle game where players must navigate through a variety of challenging levels. Work together with a friend or control both characters to solve puzzles, dodge obstacles, and gather gems.
 
